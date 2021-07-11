@@ -1,1 +1,0 @@
-# sdq_projects
